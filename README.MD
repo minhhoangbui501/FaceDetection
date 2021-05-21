@@ -1,0 +1,1 @@
+một con bò nhìn 2 cái cánh gà
